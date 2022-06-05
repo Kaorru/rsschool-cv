@@ -30,4 +30,4 @@ No experience
 Rostov-on-Don College of Communications and Informatics. Banking specialty.
 
 ## Language
-English level - A1
+English level - A1.
